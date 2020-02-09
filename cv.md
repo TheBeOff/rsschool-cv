@@ -5,7 +5,7 @@
 * E-mail: [rblbasom@gmail.com](mailto:rblbasom@gmail.com)
 * VK: [thebeoff](https://vk.com/id146808682)
 * Discord: BFF#4716
-* Phone: 8(029)(44)5425877
+* Phone: 8(029)(44) 542-58-77
 
 ## Summary
 
